@@ -3,3 +3,5 @@
 
 Try :)
 Have a nice day!
+
+click zephyr.today/game to play
